@@ -4,4 +4,4 @@
 iyi günler.
 
 ##
-![Logo](http://cdn.miramax.com/media/assets/pulp_fiction_logo.png)
+![Logo](https://media.giphy.com/media/ifHtzShzDlWqA/giphy.gif)
